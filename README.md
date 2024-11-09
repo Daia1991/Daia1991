@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Daia1991 💟💻⚖︎🧿💟
+## Bem-vindo(a) ao perfil do Daia1991 💟💻💟
 
  <div>
    <a href="https://github.com/Daia1991">
